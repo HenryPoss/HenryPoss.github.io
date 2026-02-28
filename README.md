@@ -1,2 +1,0 @@
-# HenryPoss.github.io
-Portfolio
